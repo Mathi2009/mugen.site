@@ -10,7 +10,7 @@ Como eu disse seria para publicação e discução do assunto principal, o _Muge
 
  
 >[!CAUTION]
->QUANDO A PUBLICAÇÃO FOR ATIVADA, NÃO PODERÁ SE COLOCAR COISAS ILÍCITAS, APENAS EM LUGARES ESPECÍFICOS
+>QUANDO A PUBLICAÇÃO FOR ATIVADA, NÃO PODERÁ SE COLOCAR COISAS ILÍCITAS, APENAS EM LUGARES ESPECÍFICOS, apenas não fale muito sobre isso também, ok? 👍
 
 2. **Porque dei o upload se ainda não está pronto?**
 
@@ -18,10 +18,10 @@ Como eu disse seria para publicação e discução do assunto principal, o _Muge
 
 3. **Mas, esse trabalho pode ser _copiado?_**
    
-    Não, afinal eu tive a idéia de faze-lo, mas quem puder ajudar pode ser um co-fundador do site.
+    Não, afinal eu tive a idéia de faze-lo, mas quem puder ajudar pode ser um co-fundador do site. Desculpe se fui rude, mas é verdade 😇
 
 >[!WARNING]
->NÃO É POSSÍVEL COPIAR O SITE, COLOCAREI COPYRIGHT PARA PROTEÇÃO
+>NÃO É POSSÍVEL COPIAR O SITE, COLOCAREI COPYRIGHT PARA PROTEÇÃO, mas, se não copiar se sinta em casa! 🎧
 
 ## _Vocês podem checar meu perfil para saber mais e onde me encontrar_
 
